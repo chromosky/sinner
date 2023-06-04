@@ -1,0 +1,2 @@
+# sinner
+jakies systemy brydzowe
